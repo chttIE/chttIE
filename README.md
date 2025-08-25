@@ -14,5 +14,5 @@
 
 ## ✍️ Публикации
 
-Пишу тут: **[Дзен](https://dzen.ru/bim_in)** **[ТГ](https://t.me/BIM_coordinator_IN)**📚
+Пишу тут: **[Дзен](https://dzen.ru/bim_in)** [ТГ](https://t.me/BIM_coordinator_IN)📚
 
